@@ -8,7 +8,9 @@
 ![](https://github.com/stolbitsa/stolbitsa/assets/149964365/5567b272-ca11-45b2-8a37-253d592d4120)
 
 
-Также рекомендуем пройти этот урок: stolbitsa.com/Fistachka/subdominantC<br><br>
+Также рекомендуем пройти этот урок: 
+![Fistachka/subdominantC](https://github.com/user-attachments/assets/477fc3f6-8556-41e9-9c2f-e6c681423bd7 =200x200)
+stolbitsa.com/Fistachka/subdominantC<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -19,6 +21,8 @@ You must guess which two of them are sounding simultaneously.
 
 ![](https://github.com/stolbitsa/stolbitsa/assets/149964365/5567b272-ca11-45b2-8a37-253d592d4120)
 
-We also recommend taking this lesson: stolbitsa.com/Fistachka/subdominantC
+We also recommend taking this lesson: 
+![Fistachka/subdominantC](https://github.com/user-attachments/assets/477fc3f6-8556-41e9-9c2f-e6c681423bd7 =200x200)
+stolbitsa.com/Fistachka/subdominantC
 <br><br>
 
